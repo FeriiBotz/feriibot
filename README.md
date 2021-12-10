@@ -1,0 +1,2 @@
+# feriibot
+JANGAN LUPA SUBSCRIBE YE
